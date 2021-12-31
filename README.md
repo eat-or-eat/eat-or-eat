@@ -1,5 +1,8 @@
-### Hi there 👋
+😄一个向着NLP专家努力的Coder
 
+📫 How to reach me:\
+Wechat:13392711057 \
+QQ e-mail:1156635730@qq.com
 <!--
 **eat-or-eat/eat-or-eat** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
