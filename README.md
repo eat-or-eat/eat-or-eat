@@ -1,4 +1,4 @@
-😄一个向着NLP专家努力的Coder
+😄一个向着NLP专家努力并且喜欢吃的Coder
 
 📫 How to reach me:\
 Wechat:13392711057 \
